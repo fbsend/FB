@@ -12,7 +12,7 @@
 * 2、请给予提示的必要权限，请开启无障碍权限，手机不需要ROOT<br>
 * 3、选择选项，点击开始，自动操作。
 
-![](https://ae02.alicdn.com/kf/H5f5ced30eab14121918bf73c0b635eceA.jpg)
+![](https://ae02.alicdn.com/kf/H90085c1442754d9abb06d9a219fb0f95s.jpg)
 
 ###免费下载 :
 
